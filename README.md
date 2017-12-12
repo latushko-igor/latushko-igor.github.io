@@ -1,1 +1,0 @@
-# latushko-igor.github.io
